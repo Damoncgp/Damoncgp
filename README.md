@@ -5,7 +5,7 @@
 
 
 
-![.](https://tenor.com/pt-BR/view/we-live-we-love-we-lie-smurf-cat-smurf-cat-with-snail-gif-12552082939415966821).
+![.](https://media.tenor.com/gf_-X6I29z8AAAAd/smurf-cat-smurf.gif).
 
 
 
