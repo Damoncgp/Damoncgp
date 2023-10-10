@@ -2,7 +2,7 @@
 
 
 
-![.](https://media.tenor.com/gf_-X6I29z8AAAAd/smurf-cat-smurf.gif).
+![.](https://tenor.com/b1num.gif).
 
 
 
