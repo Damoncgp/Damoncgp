@@ -2,10 +2,7 @@
 
 
 
-
-
-![.](https://media.tenor.com/aK1_24FB_CUAAAPo/teto-trap.mp4).
-
+![](https://media.tenor.com/aK1_24FB_CUAAAAd/teto-trap.gif)
 
 
 
